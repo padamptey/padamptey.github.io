@@ -1,3 +1,5 @@
+https://github.com/padamptey/padamptey.github.io/wiki/INFORMATION-ABOUT-ME 
+
 Survey of Data Governance Policies, processing concerns and purging of fortune hundred (100) companies for the year 2022.
 
 
