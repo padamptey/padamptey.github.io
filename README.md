@@ -1,2 +1,2 @@
-# padamptey.github.io
+Survey of Data Governance Policies, processing concerns and purging of fortune hundred (100) companies for the year 2022.# padamptey.github.io
 Summer Dream Research
