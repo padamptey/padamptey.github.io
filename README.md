@@ -32,3 +32,8 @@ School of Computing, Jarvis College of Computing and Digital Media
 243 South Wabash Avenue, Chicago, IL 60604
 
 (9) Alexander Rasin | LinkedIn
+
+Week 1 journal
+
+I Completed series of paperwork for the program and researched about the dream program and scout for supervisor. This is the opportunity to plan for the research and ensure that it’s successful. This was the time to focus on the choosing an appropriate methodology to execute the research. It provided me the opportunity to aim for clarity towards the goal.
+
