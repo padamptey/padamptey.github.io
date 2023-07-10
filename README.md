@@ -44,3 +44,8 @@ I met with my supervisor to discuss the research topic and schedules. We also di
 Week 3 journal
 
 I started my research with a survey the governance policies of the first fifteen (15) fortune hundred (100) for the year ending 2022 to observe and isolate processing concerns found.  The idea is to harvest enough data for the second stage of the research. We shall have the opportunity to discuss possible solutions or triggers or rules that can be developed to purge them. I also submitted the report for M1 in the dream research schedule.
+
+Week 4 journal
+
+Survey the governance policies of the second badge of fifteen (16-30) fortune hundred for the year ending 2022 to observe and isolate processing concerns found. Discuss posing solution or triggers or rules that can be developed to purge them. I met my mentor for the second time to discuss my progress report and the way forward. he was helpful to solve my concerns
+
