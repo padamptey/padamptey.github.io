@@ -49,3 +49,6 @@ Week 4 journal
 
 Survey the governance policies of the second badge of fifteen (16-30) fortune hundred for the year ending 2022 to observe and isolate processing concerns found. Discuss posing solution or triggers or rules that can be developed to purge them. I met my mentor for the second time to discuss my progress report and the way forward. he was helpful to solve my concerns
 
+Week 5 journal
+
+I surveyed the governance policies of the third badge of fifteen (31-45) fortune hundred for the year ending 2022 to observe and isolate processing concerns found. Discuss posing solution or triggers or rules that can be developed to purge them. I met my advisor the second time in a meeting to discuss our progress report. All concerns were addressed.
