@@ -37,3 +37,6 @@ Week 1 journal
 
 I Completed series of paperwork for the program and researched about the dream program and scout for supervisor. This is the opportunity to plan for the research and ensure that it’s successful. This was the time to focus on the choosing an appropriate methodology to execute the research. It provided me the opportunity to aim for clarity towards the goal.
 
+Week 2 journal
+
+I met with my supervisor to discuss the research topic and schedules. We also discussed research interests and aims of the research. I research into researched the global fortune 100 companies for 2022 and their geographical dispersion. I was able to gather further existing literature on these organizations. It was interesting to note how the same companies keep swapping positions in the rankings.
