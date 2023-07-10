@@ -51,4 +51,9 @@ Survey the governance policies of the second badge of fifteen (16-30) fortune hu
 
 Week 5 journal
 
-I surveyed the governance policies of the third badge of fifteen (31-45) fortune hundred for the year ending 2022 to observe and isolate processing concerns found. Discuss posing solution or triggers or rules that can be developed to purge them. I met my advisor the second time in a meeting to discuss our progress report. All concerns were addressed.
+I surveyed the governance policies of the third badge of fifteen (31-45) fortune hundred for the year ending 2022 to observe and isolate processing concerns found. Discuss posing solution or triggers or rules that can be developed to purge them. I met my advisor the second time in a meeting to discuss our progress report. All concerns were addressed. I completed the M2 of the dream schedule.
+
+Week 6 Journal
+
+Surveyed the governance policies of the third badge of fifteen (46-60) fortune hundred for the year ending 2022 to observe and isolate processing concerns found. Discussed possible solutions or triggers or rules that can be developed to purge them.
+
