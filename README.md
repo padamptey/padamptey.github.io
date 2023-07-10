@@ -40,3 +40,7 @@ I Completed series of paperwork for the program and researched about the dream p
 Week 2 journal
 
 I met with my supervisor to discuss the research topic and schedules. We also discussed research interests and aims of the research. I research into researched the global fortune 100 companies for 2022 and their geographical dispersion. I was able to gather further existing literature on these organizations. It was interesting to note how the same companies keep swapping positions in the rankings.
+
+Week 3 journal
+
+I started my research with a survey the governance policies of the first fifteen (15) fortune hundred (100) for the year ending 2022 to observe and isolate processing concerns found.  The idea is to harvest enough data for the second stage of the research. We shall have the opportunity to discuss possible solutions or triggers or rules that can be developed to purge them. I also submitted the report for M1 in the dream research schedule.
