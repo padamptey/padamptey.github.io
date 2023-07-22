@@ -60,3 +60,7 @@ Surveyed the governance policies of the third badge of fifteen (46-60) fortune h
 Week 7 journal
 
 This is the week where I surveyed the governance policies of the fourth badge of fifteen (61-75) fortune hundred for the year ending 2022 to observe and isolate processing concerns found.  Some of these big companies are found in different geographical location so it was not surprising to different privacy storage procedures for these regions. Discuss possible solutions or triggers or rules that can be developed to purge them.
+
+Week 8 journal
+
+ I surveyed the governance policies of the fifth badge of fifteen (76-90) fortune hundred for the year ending 2022 to observe and isolate processing concerns found. We discussed possible solutions or triggers or rules that can be developed to purge them. I had the opportunity to submit my progress report for the research to trigger M3. 
