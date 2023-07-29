@@ -64,3 +64,7 @@ This is the week where I surveyed the governance policies of the fourth badge of
 Week 8 journal
 
  I surveyed the governance policies of the fifth badge of fifteen (76-90) fortune hundred for the year ending 2022 to observe and isolate processing concerns found. We discussed possible solutions or triggers or rules that can be developed to purge them. I had the opportunity to submit my progress report for the research to trigger M3. 
+
+Week 9 journal
+
+ I completed the survey of the governance policies for the last badge of 10 (91-100) fortune hundred for the year ending 2022 to observe and isolate processing concerns found. Discussed possible solutions or triggers or rules that can be developed to purge them. I also requested to meet my advisor to finalize all concerns and positive attributes for my research.
